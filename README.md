@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @SavineGailCCansancio
-- 👀 I’m interested in you yieee ackkk oum
-- 🌱 I’m currently learning french spanish korean japanese hindi mandarin greek roman arabic german persian turkish portugese italian english vietnamese tagalo
-- 💞️ I’m looking to collaborate on roblox dti
-- 📫 How to reach me don't
-- 😄 Pronouns: Ha/Ha/Ha/Ha/Ha/Ha
-- ⚡ Fun fact: naa koy BMW
+- 👀 I’m interested in...
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate...
+- 📫 How to reach me...
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: ...
 
 <!---
 SavineGailCCansancio/SavineGailCCansancio is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
